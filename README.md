@@ -13,9 +13,9 @@
 
 ## [工体东路没有人](https://www.lanzous.com/b683311)
 
-## [李志-2014-2014勾三搭四现场录音专辑[320kb](https://www.lanzous.com/b683312)
+## [李志-2014-2014勾三搭四现场录音专辑【320kb】](https://www.lanzous.com/b683312)
 
-## [我爱南京①](ttps://www.lanzous.com/b683338)
+## [我爱南京①](https://www.lanzous.com/b683338)
 
 ## [我爱南京②](https://www.lanzous.com/b683339)
 
