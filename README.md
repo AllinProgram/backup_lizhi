@@ -1,5 +1,6 @@
 # backup_lizhi
 李志歌曲备份_蓝奏云下载
+密码 allinprogram
 
 ## [F](https://www.lanzous.com/b683304)
 
