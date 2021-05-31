@@ -4,7 +4,7 @@
 
 ## 密码
 
-<a href="https://allinprogram.com/" target="_blank">allinprogram.com</a>去掉.com
+<a href="https://allinprogram.com/" target="_blank">allinprogram.com</a>去掉`.com`
 
 ## 目录
 - <a href="https://deeplearn.lanzoui.com/b05xdv7e" target="_blank">《F》</a>
